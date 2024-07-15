@@ -1,2 +1,2 @@
 # commercial-bank-of-ethiopia
-0934379093
+1000 3572 85473 
